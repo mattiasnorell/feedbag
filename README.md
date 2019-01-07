@@ -1,2 +1,2 @@
 # Feedbag
-Hey, look at this crowd. You guys gotta try the pasta. It's got a real nice profit margin. Bam!
+If you like good food, good fun  and a whole lot of crazy crap on the walls  then come on down to uncle Matt's Family Feedbag.
